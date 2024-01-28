@@ -1,2 +1,2 @@
-# Susurros-del-Coraz-n---preregistro
+# Susurros-del-Corazon---preregistro
 Pre registro
